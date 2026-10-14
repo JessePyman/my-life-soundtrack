@@ -14,3 +14,8 @@ playlist yang menggambarkan beberapa fase hidup saya.
 
 ### Penghujung Cerita - Murphy Radio
 Lagu ini menggambarkan kondisi suatu hubungan/pertemanan atau yg lainnya bahwa sebentar lagi hubungan itu akan berakhir atau akan berpisah.
+
+## Current mood
+
+1. Secluded - Liburan Dirumah
+2. Sambutlah - The Jeblogs
